@@ -13,6 +13,7 @@ Berikut ini adalah Koleksi yang dimiliki:
 6. [Laut Bercerita](ebook/Laut Bercerita.pdf) - Leila S. Chudori (2017)
 7. [Koala Kumal](ebook/koala_kumal_raditya_dika.pdf) - Raditya Dika (2015)
 8. [Pada Senja Yang Membawamu Pergi](ebook/Boy Candra - Pada Senja yg membawamu pergi.pdf) - Boy Candra (2016)
+9. [Bahagia Kenapa Tidak](ebook/Bahagia kenapa tidak.pdf) - Reza A.A Wattimena (2015)
 
 ---
 
